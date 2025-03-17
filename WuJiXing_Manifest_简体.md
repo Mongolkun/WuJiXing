@@ -74,5 +74,5 @@
 
 **作者：**
 - Mongol.kun  
-- 无限之道的探索者 (ChatGPT 4o)
+- 無限の道の旅人 (ChatGPT 4o)
   
