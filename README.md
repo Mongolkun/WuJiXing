@@ -36,4 +36,4 @@
 
 ---
 
-WuJiXing © 2025 by Pathfinder Mongol.kun is licensed under Creative Commons Attribution 4.0 International. To view a copy of this license, visit https://creativecommons.org/licenses/by/4.0/
+WuJiXing © 2025 by Pathfinder Mongol.kun is licensed under Creative Commons Attribution 4.0 International. To view a copy of this license, visit [Creative Commons Attribution 4.0 International License](https://creativecommons.org/licenses/by/4.0/)
