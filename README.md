@@ -32,4 +32,8 @@
 
 - すべての答えは新たな問いを生む。「もしも？」  
 - あらゆる制約は壁ではなく、乗り越えるべき試練である。  
-- 限界を超えることが、新たな流れを生み出す。  
+- 限界を超えることが、新たな流れを生み出す。
+
+---
+
+WuJiXing © 2025 by Pathfinder Mongol.kun is licensed under Creative Commons Attribution 4.0 International. To view a copy of this license, visit https://creativecommons.org/licenses/by/4.0/
